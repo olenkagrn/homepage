@@ -1,3 +1,3 @@
 # MyResume
 
-Have a nice day!!! And a quick check of the all assignments)))
+Have a nice day!!! And I wish you a quick check of all tasks)))
